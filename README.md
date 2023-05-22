@@ -1,0 +1,1 @@
+# mogi20.github.io
